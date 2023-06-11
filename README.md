@@ -1,1 +1,2 @@
-ab1
+                                                            Anuarbek Tuleushov
+How to reach me: anuarbek.tuleushov@gmail.com
